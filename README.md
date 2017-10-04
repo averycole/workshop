@@ -1,2 +1,2 @@
 # workshop
-personal testing space
+Personal testing space. Please direct any questions to my email.
